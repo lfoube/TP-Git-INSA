@@ -9,4 +9,4 @@
 8. I will be in charge of solving any conflicts.
 
 # Secrete info
-(Write your info here)
+30/10
